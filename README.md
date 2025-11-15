@@ -1,1 +1,1 @@
-pokoknya begitu lah ya
+pokoknya begitu lah ya oke

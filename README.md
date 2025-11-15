@@ -1,1 +1,1 @@
-pokoknya begitu lah ya sip
+pokoknya begitu lah ya oke sip
